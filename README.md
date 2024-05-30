@@ -1,1 +1,1 @@
-https://zc0616.github.io/cong.github.io/
+https://zc0616.github.io/web_try
